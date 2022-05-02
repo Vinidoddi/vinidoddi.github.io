@@ -1,0 +1,2 @@
+# vinidoodi.github.io
+curriculo 
